@@ -11,7 +11,7 @@ The NBA Draft is a highly anticipated event that showcases the future stars of p
 The NBA Draft has a significant impact on the league's landscape as teams aim to secure talented players who can make an immediate impact or develop into key contributors over time. The draft process involves extensive scouting, player evaluations, and pre-draft workouts, with teams investing significant resources to make informed decisions.
 
 ### Subsection 1
-Additionally, draft picks hold trade value, and teams often engage in trades to move up or down in the draft order or acquire established players by using their draft assets as bargaining chips.
+Additionally, draft picks hold trade many value, and teams often engage in trades to move up or down in the draft order or acquire established players by using their draft assets as bargaining chips.
 
 ## Paragraph 3
 To learn more about the NBA Draft, its history, and recent developments, you can refer to the following articles:
