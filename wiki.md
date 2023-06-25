@@ -14,7 +14,7 @@ The NBA Draft has a significant impact on the league's landscape as teams aim to
 Additionally, draft picks hold trade many value, and teams often engage in trades to move up or down in the draft order or acquire established players by using their draft assets as bargaining chips.
 
 ## Paragraph 3
-To learn more about the NBA Draft, its history, and recent developments, you can refer to the following articles:
+To learn more about the NBA Draft, its history, and recent developments, you can also refer to the following articles:
 
 - [NBA Draft Article](https://www.nba.com/draft)
 - [ESPN NBA Draft Article](https://www.espn.com/nba/draft)
